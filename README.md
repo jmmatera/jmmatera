@@ -11,5 +11,4 @@ Meu nome é João Miguel
 
   @joao_miguel_merlo ou @jmmaterial7
 
-  
   ![](https://media1.tenor.com/m/cpd7RzlS8I8AAAAd/vu-tuv.gif)
